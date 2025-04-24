@@ -1,0 +1,1 @@
+- The Day/Night cycle exists via canals dug in the oil worlds surface that burns oil throughout the day. Carving through the night like a lit fuse. Over millennia the oil is consumed and the days get darker and darker.

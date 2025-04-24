@@ -1,0 +1,14 @@
+# Brainstorm
+- A settlement on [[Water World]] that turns oil into ink for use in tattoos
+- The oil is not refined and doesn't have a lot of inherent power, but it can be used to start fire and transfer fire.
+- [[Helion]] is from here probably
+- It's possible elders discover a way to use the lit oil that falls from the sky and gain more and more power because of it, but also become corrupt.
+- Main Character is classical anti-hero here. Not wanting to get involved
+- [[Keller Nevson]] is someone who's core motive is to not get left behind. Maybe childhood friends with Main Character.
+- Rival has already earned their tattoos, signifying adulthood, even though Keller is slightly older.
+	- Rival did something incredible to earn them early.
+- Keller needs a rival, to compare himself to. Preferably someone he loves, and someone who doesn't see him as a rival to make it more interesting.
+- Keller is scientifically minded before science is really appreciated in the village.
+- Keller and Rival are hunting partners and discover a lit oil reservoir
+	- Rival already has fire starter tattoos, Keller secretly takes some lit oil for himself, and experiments on himself with it
+- Keller starts small using a tattoo setup and giving himself tattoos, but unlike fire starter tattoos, he can will them to light whenever he likes.

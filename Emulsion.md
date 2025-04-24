@@ -1,0 +1,4 @@
+Long before any human life existed on the [[Water World]], there existed only the life granted by water. [[Pre-Emulsion Life]]: Plants, simple animals, 'fungus'?, but then the oil began to drip. The [[Oil World]] was always self contained, but when it dripped onto the water world it created a new kind of life. One where cruelty was a core aspect. It also brought fire. Fire that couldn't be put out easily. Humans were created by the intersection of water, oil, and fire; as well as all manner of creatures where cruelty and ambition were on the forefront of their minds. [[Post-Emulsion Life]]
+
+#### Brainstorming Notes
+- maybe not cruelty so much as untruthfulness. Oil introduced guise, artifice.
