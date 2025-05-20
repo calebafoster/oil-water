@@ -6,6 +6,18 @@
   "sessionStorage": "data",
   "sessions": [
     {
+      "start": "2025-04-26T14:07:44.375Z",
+      "total": 0,
+      "drafts": {
+        "Novel/Oil and Water/Index.md": {
+          "total": 0,
+          "scenes": {
+            "First Hunt": 0
+          }
+        }
+      }
+    },
+    {
       "start": "2025-04-17T15:33:47.330Z",
       "total": 0,
       "drafts": {
